@@ -1,2 +1,4 @@
-# https-www.madelinemediadesign.com-home-page
-F U T U R E
+# Madeline Media Design
+## Since 2013
+### For professional use only. Copyright 2020
+#### Thank you for visiting. Enjoy!
